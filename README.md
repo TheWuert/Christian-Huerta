@@ -13,7 +13,7 @@
 ## 📈 Interests
 - Data visualization & dashboarding  
 - Machine learning & predictive modeling  
-- Health, sports, and fitness
+- Health, Sports, and Fitness
 
 ## 📫 Contact
 - [LinkedIn](https://www.linkedin.com/in/christian-huerta-895694320/)  
