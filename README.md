@@ -17,7 +17,7 @@
 
 ## 📫 Contact
 - [LinkedIn](https://www.linkedin.com/in/christian-huerta-895694320/)  
-- Email: Hjchristian21@yahoo.com  
+- Email: Cjhuerta21@gmail.com   
 
 ---
 
